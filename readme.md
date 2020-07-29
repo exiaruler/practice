@@ -1,2 +1,2 @@
-Zac commited.
+Zac has commited.
 Davit
